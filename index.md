@@ -13,9 +13,9 @@
 1.[三叶草，花语：浪漫、爱情、希望](https://www.ixigua.com/6982143682254373387?logTag=49d7361d42bcf1fce9ca)<br>
 2.[一朵山茶花，清新脱俗](https://www.ixigua.com/6981772753384768038?logTag=2d2d536d00e6949ab948)<br>
 3.[山茶花，花语：理想的爱](https://www.ixigua.com/6981435503211971075?logTag=13e93f0b0755f999012d)<br>
-4.[一颗草莓[1]](https://www.ixigua.com/6980737324745392673?logTag=3ec89d75fb29b9eaa28a)<br>
+4.[一颗草莓[1](https://www.ixigua.com/6980737324745392673?logTag=3ec89d75fb29b9eaa28a)<br>
 5.[一颗草莓2](https://www.ixigua.com/6981035587381756428?logTag=7d2a6a226e3d9f955718)<br>
-6. [勿忘我花束，花语：永恒的爱](https://www.ixigua.com/6979986962367119875?logTag=42b8e8528af8471fbac0)<br>
+6.[勿忘我花束，花语：永恒的爱](https://www.ixigua.com/6979986962367119875?logTag=42b8e8528af8471fbac0)<br>
 7.[勿忘我花束，花语：永恒的爱](https://www.ixigua.com/6978774006350479904?logTag=47f7e9f072c466954bfc)<br>
 8.[玫瑰花束组合，一朵绽放的玫瑰花，钩针毛线编织](https://www.ixigua.com/6978444617234514435?logTag=860d2436a5b9f58afd10)<br>
 9.[蓝玫瑰花束，钩针毛线编织（四）花托制作](https://www.ixigua.com/6977311260861792779?logTag=836f6fdc80486b8f7f53)<br>
