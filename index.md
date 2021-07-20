@@ -9,8 +9,7 @@
 [风铃花，深深的感谢和祝福送给朋友们 花朵挂件钩织教程（二）](https://www.ixigua.com/6983930338074427907?logTag=c6600a34dc5812e47ac0)<br>
 [风铃花，将最好的祝福和感谢送给珍贵的朋友 钩针编织教程（一）](https://www.ixigua.com/6983621888891159052?logTag=b07e8da36a1436a4d613)<br>
 [风铃花，花语：深深的感谢和祝福 非常适合送给朋友 钩针编织](https://www.ixigua.com/6983263567009022476?logTag=53fafd365be0d5c2661e)<br>
-
-[三叶草：一叶代表祈求， 一叶希望，一叶爱情（])(https://www.ixigua.com/6982433245883269636?logTag=d73e112fa38ffa01a5f3)<br>
+[三叶草：一叶代表祈求， 一叶希望，一叶爱情](https://www.ixigua.com/6982433245883269636?logTag=d73e112fa38ffa01a5f3)<br>
 
 1.[三叶草，花语：浪漫、爱情、希望](https://www.ixigua.com/6982143682254373387?logTag=49d7361d42bcf1fce9ca)<br>
 2.[一朵山茶花，清新脱俗](https://www.ixigua.com/6981772753384768038?logTag=2d2d536d00e6949ab948)<br>
